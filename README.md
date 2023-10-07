@@ -13,7 +13,7 @@ Prev: Head of Product & Technology @ [Real Valor](https://www.orealvalor.com.br)
 - Helped +300k brazilians invest better  
   
 
-- Adquired by [Empiricus](https://www.empiricus.com.br) - biggest financial publication in Brazil  
+- Acquired by [Empiricus](https://www.empiricus.com.br) - biggest financial publication in Brazil  
   
 
 <br/>  
