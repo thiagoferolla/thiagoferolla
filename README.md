@@ -1,7 +1,7 @@
 ### <div align="center">Thiago Ferolla</div>  
   
 
-Co-Founder @ [SCARF](https://www.scarf.gg)  
+Co-Founder @ [SCARF](https://www.scarf.club)  
   
 
 - 🏅 Currently helping e-sports team create better communities and monetize their fanbase  
