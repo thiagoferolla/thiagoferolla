@@ -4,7 +4,7 @@
 Co-Founder @ [SCARF](https://www.scarf.club)  
   
 
-- 🏅 Currently helping e-sports team create better communities and monetize their fanbase  
+- 🏅 Currently helping content creators monetize their communities  
   
 
 Prev: Head of Product & Technology @ [Real Valor](https://www.orealvalor.com.br)  
